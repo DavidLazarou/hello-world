@@ -6,5 +6,6 @@ I specialise in Derivative Market Fundamental Analysis, pricing & valuation, exe
 
 I have a strong and demonstrated history of delivering positive revenue outcomes for initatives involving Proprietary Trading, Business Development and Product Development.
 
+  
 
-
+  
